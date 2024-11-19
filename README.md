@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RorekOfNol
 - 👀 I’m interested in Shibari
 - 🌱 I’m currently learning Temple OS
-- 💞️ I’m looking to create a family
-- 📫 How to reach me on KF Or Noah "Rorek" Petty on YouTube
+- 💞️ 
+- 📫 Reach me at Noah "Rorek" Petty on YouTube
 - 😄
-- ⚡ Fun fact: I love the fourteen words.
+- ⚡⚡Fun fact: I love the fourteen words.
